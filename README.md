@@ -26,6 +26,11 @@
    <p align="center">
     <img width="540" height="350" alt="@_din-djarns on tumblr" src="https://github.com/user-attachments/assets/aea586c2-820c-4c63-ba3d-e168ec269aa0" />
 
+| <img width="500" height="360" alt="Download (2)" src="https://github.com/user-attachments/assets/dccae115-8bbb-4cc6-92d6-07785ebd340a" /> |<img width="736" height="414" alt="Download (10)" src="https://github.com/user-attachments/assets/5b71db5e-8258-417a-8f0e-639990073bb2" />|<img width="426" height="260" alt="Download (3)" src="https://github.com/user-attachments/assets/97b1776e-0864-4148-8f7d-61c575acd683" /> |
+|---|---|---|
+
+
+
 
 
 
