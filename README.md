@@ -14,15 +14,18 @@
 <details>
   <summary><b>🎬 Media I Like</b></summary>
 
-  MCU  
+  Marvel
   Supernatural  
   Sherlock Holmes  
   Lord of the Rings  
   Star Wars  
   Metro 2033 (games+books)
   Gothic games
+  House MD
+  TWD
+  
   + tons of other shows, movies, and games
-
+  + 
    <p align="center">
     <img width="540" height="350" alt="@_din-djarns on tumblr" src="https://github.com/user-attachments/assets/aea586c2-820c-4c63-ba3d-e168ec269aa0" />
 </details>
