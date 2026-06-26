@@ -2,7 +2,7 @@
 <p align="center"><b>Usually AFK/off‑tab — whisper anytime and I’ll reply when I’m back.</b></p>
 <p align="center">✦ ✦ ✦</p>
 
- DNI: NSFW accounts, toxic behavior, trolls, bigots, anyone disrespecting boundaries, roleplay-seekers, weird/flirty behavior🙏
+ DNI: NSFW jokers, toxic behavior, trolls, bigots, anyone disrespecting boundaries, roleplay-seekers, weird/flirty behavior🙏
  <p align="center">
 <img width="300" height="169" alt="tumblr_maj4j54LIK1rziwwco1_400" src="https://github.com/user-attachments/assets/67fbbd2f-5d8a-47ed-9ad3-5053518fd46d" />
 
